@@ -19,3 +19,5 @@ Ayrıca şu da olsa daha iyi olur dediğiniz bir özellik varsa bilgilendirirsen
 Teşekkürler
 
 ![Domain](https://user-images.githubusercontent.com/61078338/215774945-81f84988-9ad3-412b-8573-6541bc2faea2.png)
+
+![2](https://user-images.githubusercontent.com/61078338/219275313-75e05f07-4fef-48e7-b517-ee52888fc4ab.jpg)
